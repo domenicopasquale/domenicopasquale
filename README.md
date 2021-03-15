@@ -15,4 +15,4 @@ I spent a beautiful childhood in the company of my best friends: ⚽️ a ball, 
 
 - My works are available on my GitHub profile: https://github.com/domenicopasquale 
 
-- 📫 You can reach me at domenicopasq@gmail.com or +39 3270211233
+- 📫 You can reach me at domenicopasq@gmail.com or +393270211233
